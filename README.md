@@ -8,7 +8,5 @@ Você pode entrar em contato comigo 📫
 00001064669542sp@al.educacao.sp.gov.br
 
 @O_O_MARTINS
-
-
-![](![download](https://github.com/euM4RTINS/-euM4RTINS/assets/172306501/5a1a9041-94f8-46ee-893d-56ad728d8828)
+![](![download](https://github.com/euM4RTINS/-euM4RTINS/assets/172306501/774ee258-84ff-4c05-b05b-6da49ef7f04c)
 )
